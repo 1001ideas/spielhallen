@@ -1,5 +1,5 @@
 
-[webdesign.jpg]
+![Webdesign](webdesign.jpg)
 Wenn Sie sich bereits auf unserer Website umgesehen haben, dann ist
 Ihnen sicherlich aufgefallen, wie viele Informationen wir über
 Online-Casinos gesammelt haben. Wir hoffen auch, dass unser Bemühen,
