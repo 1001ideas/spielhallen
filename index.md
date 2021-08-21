@@ -12,3 +12,4 @@ unserem erweiterten Team von Online-Casino-, Sportwetten- und
 Bingo-Experten, die ihr Wissen großzügig mit ihrer Gemeinschaft teilen,
 den gebührenden Respekt zollen und auch den Regulierungsbehörden, die
 dafür sorgen, dass wir, die Online-Spieler, sicher und informiert sind.
+[testcasino.at](https://testcasino.at/)
